@@ -4,7 +4,6 @@
 
 📫 Reach me ...
 
-- Twitter: [@jamesmjacoby](https://twitter.com/jamesmjacoby)
 - Instagram: [@jamesmjacoby](https://instagram.com/jamesmjacoby)
 - YouTube: [James Jacoby](https://www.youtube.com/channel/UCgxGEwJxqeptvtG25or-X4w)
 - Web: [mobyinc.com](https://mobyinc.com), [supernormalgames.com](https://supernormalgames.com)
